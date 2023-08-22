@@ -1,0 +1,5 @@
+- 👋 Hi, I’m omar
+- 👀 I’m interested in html & css
+- 🌱 I’m currently learning html & css
+- 💞️ I’m looking to collaborate on the shool
+- 📫 How to reach me dont now !?
